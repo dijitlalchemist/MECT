@@ -1,6 +1,5 @@
 # MECT
-MANEATER CLOUD TECHNOLOGY v1.0 by Gary Wetter
-Thursday, May 1st, 2014
+MANEATER CLOUD TECHNOLOGY v1.0 by Gary Wetter, on Thursday, May 1st, 2014
 
 The most exciting point in history since "Mary Mary v1.0" and beyond(!)
 
