@@ -14,5 +14,10 @@ thwart the evil "Mary Mary v2.0"(hollaback app).
 The technology also offers a community pool - were unisex endusers can share information on the whereabouts of man-eaters 
 lurking in public waters.
 
-MANEATER FAQ'S
+MANEATER FAQ'S:
 https://thekingofslop.tumblr.com/post/171835372938/maneaterfaqs
+
+MARY MARY v1.0 FAQ'S:
+https://youtu.be/QgmyVLheqkQ
+
+CHEERS!
